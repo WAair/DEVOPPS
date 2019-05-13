@@ -1,1 +1,1 @@
-"# DEVOPPS I LIKR PIZZA HUTCH IT61 5.01" 
+"# DEVOPPS I like pizza hutch IT61" 
